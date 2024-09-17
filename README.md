@@ -1,8 +1,9 @@
-![SalesTeamChat](https://github.com/user-attachments/assets/0cad0838-f4ed-47c1-b2b1-e0296799e2c4)
-![MTD Sales Report](https://github.com/user-attachments/assets/3694d180-59a3-4980-b773-c3cf68b04e9f)
-![HubSpot Sales Software Certificate](https://github.com/user-attachments/assets/8e77211c-0f5c-4340-a5c7-607f01a7d3d0)
-![Century Club Award](https://github.com/user-attachments/assets/093aee9d-b93c-47f2-a0c0-6897a95df96c)
 ![1](https://github.com/user-attachments/assets/a2c96311-4c92-480c-9a05-5c0290006c54)
+![MTD Sales Report](https://github.com/user-attachments/assets/3694d180-59a3-4980-b773-c3cf68b04e9f)
+![SalesTeamChat](https://github.com/user-attachments/assets/0cad0838-f4ed-47c1-b2b1-e0296799e2c4)
+![Century Club Award](https://github.com/user-attachments/assets/093aee9d-b93c-47f2-a0c0-6897a95df96c)
+![HubSpot Sales Software Certificate](https://github.com/user-attachments/assets/8e77211c-0f5c-4340-a5c7-607f01a7d3d0)
+
 
 🔥 Solution Savvy | SaaS Samurai | Connection Connoisseur 🔥 
 
