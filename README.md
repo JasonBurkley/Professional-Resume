@@ -1,3 +1,4 @@
+![1](https://github.com/user-attachments/assets/a2c96311-4c92-480c-9a05-5c0290006c54)
 🔥 Solution Savvy | SaaS Samurai | Connection Connoisseur 🔥 
 
 🖥️ Jasonburkley@gmail.com 
