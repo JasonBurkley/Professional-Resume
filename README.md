@@ -1,6 +1,8 @@
 ![1](https://github.com/user-attachments/assets/74b15b03-21f2-43ac-8c64-5616a9f9d9df)
+
 [Jason Burkley Resume.pdf](https://github.com/user-attachments/files/17351288/Jason.Burkley.Resume.pdf)
 
+![2](https://github.com/user-attachments/assets/d74a2f99-8d40-42d9-8166-34fd8d1014ef)
 
 🔥 Solution Savvy | SaaS Samurai | Connection Connoisseur 🔥 
 
