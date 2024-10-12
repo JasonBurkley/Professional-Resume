@@ -1,5 +1,5 @@
 
-![Jason Burkley Resume.pdf](https://github.com/user-attachments/files/17351284/Jason.Burkley.Resume.pdf)
+[Jason Burkley Resume.pdf](https://github.com/user-attachments/files/17351288/Jason.Burkley.Resume.pdf)
 
 
 🔥 Solution Savvy | SaaS Samurai | Connection Connoisseur 🔥 
