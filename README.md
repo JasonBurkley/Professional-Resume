@@ -1,4 +1,4 @@
-[Jason Burkley Resume.pdf](https://github.com/user-attachments/files/17351268/Jason.Burkley.Resume.pdf)
+![Jason Burkley Resume.pdf](https://github.com/user-attachments/files/17351268/Jason.Burkley.Resume.pdf)
 ![MTD Sales Report](https://github.com/user-attachments/assets/3694d180-59a3-4980-b773-c3cf68b04e9f)
 ![SalesTeamChat](https://github.com/user-attachments/assets/0cad0838-f4ed-47c1-b2b1-e0296799e2c4)
 ![Century Club Award](https://github.com/user-attachments/assets/093aee9d-b93c-47f2-a0c0-6897a95df96c)
